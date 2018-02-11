@@ -3,14 +3,14 @@
   -- Do NOT remove the leading `#` character.
   -->
 
-# Your wiki name
+# 珈琲焙煎者の観察
 
 
 <!--
   -- Default theme
   -- (Read: http://dynalon.github.io/mdwiki/#!customizing.md#Theme_chooser)
   -->
-
+[gimmick:themechooser](Choose theme)
 [gimmick:theme](spacelab)
 
 
