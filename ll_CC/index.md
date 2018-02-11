@@ -1,13 +1,93 @@
-# It works! ;-)
+珈琲焙煎者の観察
+=======
+囲われた庭
+----------
+あれは、７年前の地下室だった。
+
+いや、何年前かはっきりしないが、それは、福島原発がメルトダウンした年だったはずだ。
+
+ 
+
+写真を探せば、日付がわかるだろう。
+
+ 
+
+とにかく、あの地下室に入ったのは、その時がはじめてだった。
+
+ 
+
+あの日、わたしは、ひとりで山の中を歩いていて、ある女性から教えてもらった”聖域”という場所を探していた。
+
+馬頭琴を持って。
 
 
-## Section 1
 
-Aenean eu leo quam. Pellentesque ornare sem lacinia quam venenatis vestibulum. Cras mattis consectetur purus sit amet fermentum. Integer posuere erat a ante venenatis dapibus posuere velit aliquet. Praesent commodo cursus magna, vel scelerisque nisl consectetur et. Sed posuere consectetur est at lobortis.
+以前から、その辺りを一人で歩いていたが、街の中で出会ったある女性と、何度か話していると、彼女は、”聖域”と彼女の中で決めている場所の存在を教えてくれた。
 
 
-## Section 2
+その場所の在り処については、詳しくは尋ねなかった。
 
-Aenean eu leo quam. Pellentesque ornare sem lacinia quam venenatis vestibulum. Donec ullamcorper nulla non metus auctor fringilla. Cras mattis consectetur purus sit amet fermentum. Donec ullamcorper nulla non metus auctor fringilla. Cras justo odio, dapibus ac facilisis in, egestas eget quam.
+ 
 
-Vestibulum id ligula porta felis euismod semper. Maecenas faucibus mollis interdum. Morbi leo risus, porta ac consectetur ac, vestibulum at eros. Lorem ipsum dolor sit amet, consectetur adipiscing elit. Integer posuere erat a ante venenatis dapibus posuere velit aliquet.
+いつか歩いていると、きっとわかるだろうと思っていた。
+
+その日は、その何度目かの探索だった。
+
+
+
+山のふもとの建物
+とすると、それは夏だったはずだ。
+
+だんだん思い出してきた。
+
+ 
+
+そう。その日は、何度目かの探索だった。
+
+そして、その日、見つけたのだと思う。
+
+ 
+
+その場所近づくと、話に聞いた情景と一致していた。
+
+その場所で、とうとう見つけたんだと、一人で佇んでいると電話が鳴った。
+
+最初は、メールの着信だった。当時なんどか会った、女性からだった。
+何をしていますか？ということだったので、今、山の中にいますとメールで返事をした。
+
+
+するとすぐに、電話がかかってきて、何処にいるのか尋ねられたので、山の中だと応えた。
+
+「山のなか・・・ですか？何をしているの？」
+
+「場所を探していていたのだけど、まぁ、説明は出来ないです。山の中にいるだけです。」
+
+「そうですか、今、道にいて、そこで酒を飲んだり、鍋をするところです。炬燵があります、来ませんか？畳もあります。」
+
+ 
+
+炬燵か・・・なんだか夏ではなかったかもしれない。着ていた服も夏ではなかったな。
+天気はよく、山の中でＴシャツの上にマントを羽織って歩いていると汗ばんでいた季節だった。
+
+山を降りて、路上にいるという一団のところへ立ち寄り、百万遍の交差点のひとしきりの風景を見た後、大八車に炬燵や畳を積んで余興の小道具どもをかたづける場所へ
+
+「・・・見ますか？地下です。」
+
+と、案内された。
+
+ 
+
+そこは、さきほど路上でフランス語の未翻訳のものを翻訳し出版したいと言っていた大学生が棲んでいるという大学の構内の場所で、地下の一室だった。
+簡素なベッドが置いてあり、いかにも男子学生の部屋というもののあり方で、その空間は特にそれ以上の印象に残らず、その地下の部屋が位置する外の空間に強い魅力を感じた。
+
+箱のなかの庭だ。
+
+路上から部屋まで先導して案内してくれた女性に一瞥して、地下の部屋をでて、階段をあがり、コンクリートのベンチに座って、馬頭琴を弓で弾いてみた。
+
+思ったように、音がまわりを囲む建物の壁に反射してエコーとなりもどってくる。　 
+
+ここにはまだ、珈琲豆は登場しない。
+
+ただ、場所についての、わたしの中にある因果関係で、その後のわたしに起こることの起点的な重要性があるが、それはまた別の話であって、いま、ここではその場所は、また訪れることになるとは考えていなかった。
+
+珈琲豆が、その場に登場するのは、ここから６年先だ。
