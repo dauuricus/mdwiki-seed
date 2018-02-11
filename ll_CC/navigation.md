@@ -61,5 +61,5 @@
   -->
 
 <!--
-[gimmick:themechooser](Choose theme)
+[gimmick:themechooser](cyborg)
 -->
