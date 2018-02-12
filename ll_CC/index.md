@@ -109,7 +109,7 @@
 
 モカはモカである、でなにも不思議に感じていなかったので、それ以上のうたがいはなかったのだった。
 
-[https://www.instagram.com/p/BesXcuFhKFc/:title]
+[https://www.instagram.com/p/BesXcuFhKFc/]
 
 モカ
 Mokha
